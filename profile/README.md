@@ -1,4 +1,4 @@
-# 💡 ALORA CORPORATION
-Enriching lives for everyone with every product sold. No extra thoughts are needed to consider our products.
+# 💡 KYRA (KYRA HOLDINGS)
+Making your life easier.
 
-acorp — Alora Corporation
+Kyra — Kyra Holdings
